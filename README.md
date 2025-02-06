@@ -1,0 +1,1 @@
+# SeismicActivityMediterraneanAndMiddleEast7days
